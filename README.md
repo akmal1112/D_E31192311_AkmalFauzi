@@ -1,1 +1,0 @@
-# D_E31192311_AkmalFauzi
